@@ -239,4 +239,4 @@ Return to Monkey Island is the **full free version** available for download, fea
 Don't miss out on this incredible adventure! Download Return to Monkey Island today and join the fun!
 
 ---
-**Last updated:** 2026-09-22 05:47:07 UTC
+**Last updated:** 2026-09-22 10:51:00 UTC
